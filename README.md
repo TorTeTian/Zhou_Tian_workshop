@@ -1,2 +1,2 @@
-# but WANT a TORTE NOW ?
+# WANT a TORTE NOW ?
 # Yes or No or Perhaps ... 
